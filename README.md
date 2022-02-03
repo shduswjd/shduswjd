@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @shduswjd
 - 🙋‍♀️ I'm 
-- 👀 I’m interested in A
+- 👀 I’m interested in 
 - 🌱 I’m currently 
 - 💞️ I’m looking to collaborate on .....
 - 📫 How to reach me 
